@@ -31,20 +31,20 @@ TODO:
 
 -Fix Grammer Issues/Spelling Issues(0% Complete)
 
--Practice the Presentation
+-Practice the Presentation  (0% Complete)
 
--Fine-Tune GFX and Polish PPT
+-Fine-Tune GFX and Polish PPT (0% Complete)
 
--Ask Parents to look over final copy
+-Ask Parents to look over final copy (0% Complete)
 
 #**TODO CHECKPOINT** (NOT REACHED)
 
--Continue Pratacing PPT
+-Continue Pratacing PPT (0% Complete)
 
--Keep Calm
+-Keep Calm (0% Complete)
 
 #**TODO CHECHPOINT** (NOT REACHED)
 
--Present!
+-Present! (0% Complete)
 
 ##END PROJECT PLANNING##
