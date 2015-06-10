@@ -12,4 +12,6 @@
 
 -Child Soilders in Chad: Thousands of children have served in both government and rebel forces in Chad. In 2011 the government signed an action plan to end its use of child soldiers and recruitment has decreased sharply.
 
--Child Soilders in
+-Child Soilders in Colombia: Thousands of children—both boys and girls—serve in Colombia’s irregular armed groups. The majority serve in the FARC guerrillas, with smaller numbers in the UC-ELN guerrillas. Children are also recruited into successor groups to paramilitaries.
+
+-Child Soilders in Sudan:  In Darfur, over a dozen armed forces and groups use child soldiers, including the Sudanese Armed Forces, pro-government militias, and factions of the rebel Sudan Liberation Army.
